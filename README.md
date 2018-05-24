@@ -1,1 +1,1 @@
-# Mythos-Grundsteuer-Steigt
+# Mythos Grundsteuer Steigt
